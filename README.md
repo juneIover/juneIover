@@ -1,10 +1,8 @@
 <div align="center">
 
-dirk is my gay best friend and i like to hit him sometimes
+"Zuka make your Github you lazy fat cunt." IS THIS FINISHED ENOUGH FOR YOU
 
-val i wanna hit you really hard. and i mean incredibly hard there will be teeth knocked out and blood on my fist val when i catch you val
-
-![](https://komarev.com/ghpvc/?username=juneIover&color=5f4f6f)
+![](https://komarev.com/ghpvc/?username=juneIover&color=605166)
 
 </div>
 
