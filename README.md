@@ -1,11 +1,8 @@
 <div align="center">
 
-hi. i am working on this
+dirk is my gay best friend and i like to hit him sometimes
 
-look at my rentry in the meantime
-
-  ![](https://komarev.com/ghpvc/?username=juneIover&color=5f4f6f)
-  
+![](https://komarev.com/ghpvc/?username=juneIover&color=5f4f6f)
 
 </div>
 
